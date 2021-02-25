@@ -4,7 +4,7 @@
 ## Hello!
 Thanks for taking the time to look at my profile. Feel free to take inspriration to build your own software or profile like mine!
 ### Who am I?
-I am a Software Engineer and Developer who lives near the custs of Portland, Oregon.
+I am a Software Engineer and Developer who will make you good software just pay me plz.
 ### Where do I work?
 I work from home making Software and experimenting to help support others in everyday living.
 ### Where can I contact you?
